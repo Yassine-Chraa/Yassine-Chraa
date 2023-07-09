@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **yassinechraa1@gmail.com**
 
-- 📄 Know about my experiences [https://file.io/Ry0I70Az7ULj](https://file.io/Ry0I70Az7ULj)
+- 📄 Know about my experiences [https://rose-mimi-89.tiiny.site/](https://rose-mimi-89.tiiny.site/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
