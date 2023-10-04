@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **yassinechraa1@gmail.com**
 
-- 📄 Know about my experiences [https://rose-mimi-89.tiiny.site/](https://rose-mimi-89.tiiny.site/)
+- 📄 Know about my experiences [https://flowcv-user-file-uploads-prod.s3.eu-central-1.amazonaws.com/websiteButton/usclpe8hyqgb0jmtz1eh2ysfyt.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
