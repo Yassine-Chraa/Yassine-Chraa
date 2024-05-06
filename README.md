@@ -4,11 +4,11 @@
 <p align="left"> <a href="https://twitter.com/yasschraa" target="blank"><img src="https://img.shields.io/twitter/follow/yasschraa?logo=twitter&style=for-the-badge" alt="yasschraa" /></a> </p>
 
 
-- 🌱 I’m currently learning **Spring boot framework**
+- 🌱 I’m currently learning **Android Development**
 
 - 📝 I regularly write articles on [https://medium.com/@yassinechraa](https://medium.com/@yassinechraa)
 
-- 💬 Ask me about **react native, react ,laravel and vue**
+- 💬 Ask me about **react native, react , java**
 
 - 📫 How to reach me **yassinechraa1@gmail.com**
 
